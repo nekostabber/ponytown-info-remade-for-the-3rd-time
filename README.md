@@ -20,7 +20,7 @@ besides the point.
 you can call me nekostabber, otchii, otchiiwastaken or my skin name!
 </p>
 <p align="center">
-she/he/they for online usage!
+my pronouns are she/he/they for online usage!
 </p>
 <p align="center">
 ![](https://abs-0.twimg.com/emoji/v2/svg/1f1e7-1f1e9.svg)
