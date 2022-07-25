@@ -23,5 +23,5 @@ you can call me nekostabber, otchii, otchiiwastaken or my skin name!
 she/he/they for online usage!
 </p>
 <p align="center">
-
+![](https://cdn.jsdelivr.net/npm/twemoji@11.0.1/2/svg/1f1e7-1f1e9.svg)
 </p>
