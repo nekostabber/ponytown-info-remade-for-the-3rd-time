@@ -9,7 +9,7 @@
 tubers93 | anon | meowbahh | six
 </p>
 <p align="center">
-feel like they'd make the perfect friend group tbh
+feel like they'd make the perfect (ehem i mean chaotic) friend group tbh
 </p>
 <br>
 </br>
@@ -18,4 +18,7 @@ besides the point.
 </p>
 <p align="center">
 you can call me nekostabber, otchii, otchiiwastaken or my skin name!
+</p>
+<p align="center">
+she/he/they for online usage!
 </p>
