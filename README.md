@@ -15,5 +15,7 @@ feel like they'd make the perfect friend group tbh
 </br>
 <p align="center">
 besides the point.
-  you can call me nekostabber, otchii, otchiiwastaken or my skin name!
+</p>
+<p align="center">
+you can call me nekostabber, otchii, otchiiwastaken or my skin name!
 </p>
