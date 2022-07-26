@@ -20,6 +20,9 @@ besides the point.
 you can call me nekostabber, otchii, otchiiwastaken or my skin name!
 </p>
 <p align="center">
+i'm a girl
+</p>
+<p align="center">
 my pronouns are she/he/they for online usage!
 </p>
 <p align="center">
