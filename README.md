@@ -45,5 +45,10 @@ my pronouns are she/he/they for online usage!
 stars show how much i'm into the fandom / diamonds show how much of media i've finished
 - the mandela catalogue ★★★★☆ | ◆◆◇◇◇
 - rblx gasa4 (i still have gasa3, gasa4sc and the fangames to play) ★★★★★ | ◆◆◆◇◇
+- rblx royale high (that's the origin of my intruder skin!)
+- rblx robloxian high school (lots of ocs on there i took to pt ehe)
 - roblox in general, especially 'generic' or memed games!
-- boyfriends webtoon /j (no father?) ☆☆☆☆☆ | ◇◇◇◇◇ (havent even started, never will)
+- boyfriends slander
+- interested in vocaloid, utau, synthv, any vocal synth software!
+- interested in vtubing, or the idea of being a vtuber
+- interested in visual novel creation, or visual-novel like storytellinga
