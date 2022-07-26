@@ -46,4 +46,4 @@ stars show how much i'm into the fandom / diamonds show how much of media i've f
 - the mandela catalogue ★★★★☆ | ◆◆◇◇◇
 - rblx gasa4 (i still have gasa3, gasa4sc and the fangames to play) ★★★★★ | ◆◆◆◇◇
 - roblox in general, especially 'generic' or memed games!
-- 
+- boyfriends webtoon /j (no father?) ☆☆☆☆☆ | ◇◇◇◇◇ (havent even started, never will)
