@@ -26,6 +26,9 @@ you can call me nekostabber, otchii, otchiiwastaken or my skin name!
 i'm a girl
 </p>
 <p align="center">
+🇧🇩
+</p>
+<p align="center">
 my pronouns are she/he/they for online usage!
 </p>
 
