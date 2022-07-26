@@ -25,7 +25,9 @@ i'm a girl
 <p align="center">
 my pronouns are she/he/they for online usage!
 </p>
+
 ## dni
+
 - homophobic, transphobic, racist, ableist, discrimination of any kind against any minority, etc.
 - proshitters 🤮 y'all make me SICK.
 - pedophiles, zoophiles, necrophiles. literally any paraphilic disorder. keep your shit away from me.
