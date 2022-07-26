@@ -42,8 +42,8 @@ my pronouns are she/he/they for online usage!
 - i have meowbahh and tubers93 skins. they're both pretty controversial people, but i made those skins with mostly ironic intent. still, if you don't feel comfortable with it, then you should probably stay away from me.
 
 ## interact
-stars show how much i'm into the fandom / hearts show how much of media ive finished
-- the mandela catalogue ★★★★☆ | ♥♥♡♡♡
-- rblx gasa4 (i still have gasa3, gasa4sc and the fangames to play) ★★★★★ | ♥♥♥♡♡
+stars show how much i'm into the fandom / diamonds show how much of media i've finished
+- the mandela catalogue ★★★★☆ | ◆◆◇◇◇
+- rblx gasa4 (i still have gasa3, gasa4sc and the fangames to play) ★★★★★ | ◆◆◆◇◇
 - roblox in general, especially 'generic' or memed games!
 - 
