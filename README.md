@@ -31,3 +31,4 @@ my pronouns are she/he/they for online usage!
 - homophobic, transphobic, racist, ableist, discrimination of any kind against any minority, etc.
 - proshitters 🤮 y'all make me SICK.
 - pedophiles, zoophiles, necrophiles. literally any paraphilic disorder. keep your shit away from me.
+- people who think that its okay to change a characters race for any reason other than to draw them to look like you / identify as them. you can't 'fix' a race, twitter lurkers.
