@@ -39,5 +39,11 @@ my pronouns are she/he/they for online usage!
 - idk but stuff like stfu, for example, sorta sounds a bit serious in text and can put me off from wanting to talk to ya, sorry
 - i have trouble understanding stuff sometimes
 - i have weird behaviours which cause me to maybe move a bit too much in game or to spend a lot of time not moving so i can read whats said in party chat (pls dont be rude abt it as i cant control it!)
+- i have meowbahh and tubers93 skins. they're both pretty controversial people, but i made those skins with mostly ironic intent. still, if you don't feel comfortable with it, then you should probably stay away from me.
 
 ## interact
+stars show how much i'm into the fandom / hearts show how much of media ive finished
+- the mandela catalogue ★★★★☆ | ♥♥♡♡♡
+- rblx gasa4 (i still have gasa3, gasa4sc and the fangames to play) ★★★★★ | ♥♥♥♡♡
+- roblox in general, especially 'generic' or memed games!
+- 
