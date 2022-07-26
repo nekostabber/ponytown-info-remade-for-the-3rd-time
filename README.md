@@ -32,3 +32,12 @@ my pronouns are she/he/they for online usage!
 - proshitters 🤮 y'all make me SICK.
 - pedophiles, zoophiles, necrophiles. literally any paraphilic disorder. keep your shit away from me.
 - people who think that its okay to change a characters race for any reason other than to draw them to look like you / identify as them. you can't 'fix' a race, twitter lurkers.
+
+## byi
+
+- sometimes i use tonetags / tonal indicators, sometimes i dont.
+- idk but stuff like stfu, for example, sorta sounds a bit serious in text and can put me off from wanting to talk to ya, sorry
+- i have trouble understanding stuff sometimes
+- i have weird behaviours which cause me to maybe move a bit too much in game or to spend a lot of time not moving so i can read whats said in party chat (pls dont be rude abt it as i cant control it!)
+
+## interact
