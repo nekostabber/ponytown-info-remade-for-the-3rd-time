@@ -14,6 +14,9 @@ i made the tubers93 meme 😭
 <p align="center">
 feel like they'd make the perfect (ehem i mean chaotic) friend group tbh
 </p>
+<p align="center">
+https://m.youtube.com/channel/UCTrriCN7gfKoprzXOqGzJlA
+</p>
 <br>
 </br>
 <p align="center">
