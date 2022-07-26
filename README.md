@@ -25,6 +25,4 @@ i'm a girl
 <p align="center">
 my pronouns are she/he/they for online usage!
 </p>
-<p align="center">
 ![](https://media.discordapp.net/attachments/671437852936241152/1001280364184076398/Untitled151_20220726011010.png)
-</p>
