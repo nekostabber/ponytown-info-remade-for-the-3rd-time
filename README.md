@@ -6,7 +6,7 @@
 ![](https://media.discordapp.net/attachments/671437852936241152/1001273887956402378/Untitled150_20220726004323.png)
 ![](https://media.discordapp.net/attachments/671437852936241152/1001273897460711545/Untitled150_20220726004446.png)
 <p align="center">
-tubers93 | anon | meowbahh | six
+tubers93 | anon | meowbahh | six intruder
 </p>
 <p align="center">
 feel like they'd make the perfect (ehem i mean chaotic) friend group tbh
@@ -25,4 +25,7 @@ i'm a girl
 <p align="center">
 my pronouns are she/he/they for online usage!
 </p>
-![](https://media.discordapp.net/attachments/671437852936241152/1001280364184076398/Untitled151_20220726011010.png)
+## dni
+- homophobic, transphobic, racist, ableist, discrimination of any kind against any minority, etc.
+- proshitters 🤮 y'all make me SICK.
+- pedophiles, zoophiles, necrophiles. literally any paraphilic disorder. keep your shit away from me.
