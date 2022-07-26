@@ -15,7 +15,7 @@ i made the tubers93 meme 😭
 feel like they'd make the perfect (ehem i mean chaotic) friend group tbh
 </p>
 <p align="center">
-https://m.youtube.com/channel/UCTrriCN7gfKoprzXOqGzJlA
+my channer wanner: https://m.youtube.com/channel/UCTrriCN7gfKoprzXOqGzJlA
 </p>
 <br>
 </br>
