@@ -51,4 +51,4 @@ stars show how much i'm into the fandom / diamonds show how much of media i've f
 - boyfriends slander
 - interested in vocaloid, utau, synthv, any vocal synth software!
 - interested in vtubing, or the idea of being a vtuber
-- interested in visual novel creation, or visual-novel like storytellinga
+- interested in visual novel creation, or visual-novel like storytelling
