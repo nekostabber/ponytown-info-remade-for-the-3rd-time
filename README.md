@@ -9,6 +9,9 @@
 tubers93 | anon | meowbahh | six intruder
 </p>
 <p align="center">
+i made the tubers93 meme 😭
+</p>
+<p align="center">
 feel like they'd make the perfect (ehem i mean chaotic) friend group tbh
 </p>
 <br>
