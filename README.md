@@ -35,6 +35,7 @@ my pronouns are she/he/they for online usage!
 - proshitters 🤮 y'all make me SICK.
 - pedophiles, zoophiles, necrophiles. literally any paraphilic disorder. keep your shit away from me.
 - people who think that its okay to change a characters race for any reason other than to draw them to look like you / identify as them. you can't 'fix' a race, twitter lurkers.
+- fill in the blanks urself, if you are shitty enough to be considered a creep then you'd obviously be on this list 💀
 
 ## byi
 
