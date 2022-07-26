@@ -46,7 +46,7 @@ my pronouns are she/he/they for online usage!
 
 ## interact
 stars show how much i'm into the fandom / diamonds show how much of media i've finished
-- the mandela catalogue ★★★★☆ | ◆◆◇◇◇
+- the mandela catalogue (i have most of v2, the inbetween videos and v3 to finish) ★★★★☆ | ◆◆◇◇◇
 - rblx gasa4 (i still have gasa3, gasa4sc and the fangames to play) ★★★★★ | ◆◆◆◇◇
 - bfdi (i dont rlly watch it much i literally watched 3 episodes and then left it) ★☆☆☆☆ | ◆◇◇◇◇
 - rblx royale high (that's the origin of my intruder skin!)
